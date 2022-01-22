@@ -85,7 +85,7 @@
 
 
 
-**[Kenkan Gay](https://github.com/kenkansaja) | [Skyzo Ganteng](https://github.com/ridho17-ind) | [Fariz Gay](https://github.com/fjgaming212)**
+**[Kenkan Gay](https://github.com/kenkansaja) | [Skyzo Ganteng](https://github.com/Muzzu5-ind) | [Fariz Gay](https://github.com/fjgaming212)**
 
 
 
